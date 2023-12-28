@@ -33,3 +33,16 @@ Sincerely,
 
 [Your Name]
 
+
+Job template
+
+https://docs.google.com/spreadsheets/d/1cHCjc_z4D7w2K1p_39Q9q3_htK5maYPq-pB026n9v4w/edit#gid=0 
+
+
+Resume
+
+https://docs.google.com/document/d/1OfbAyptThxTaNx6VakwssynUxrMBMPb9btI-KRgEflY/edit
+
+Cover letter
+
+https://docs.google.com/document/d/1yKvbpdBdom1vqq4uGvdHAr8nsPAc5MrqHBSqth3Mhn0/edit
